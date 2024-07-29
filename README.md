@@ -25,4 +25,6 @@ if you see me from across the bar and enjoy my vibes feel free to reach me on tw
 
 i promise i do not bite :') i enjoy making new friends immensely i am just far too awkward to seek them out myself apologies 
 
-if we are interacting on ponytown i much prefer whispers as to global chat - i am off tab and/or afk constantly. i am very very prone to missing messages. if you're looking for a real conversation with me reach out to me via discord! i am much more responsive and friendly there i promise
+if we are interacting on ponytown i much prefer whispers as compared to global chat - i am off tab and/or afk constantly. i am very very prone to missing messages. if you're looking for a real conversation with me reach out to me via discord! i am much more responsive and friendly there i promise
+
+i do not think my ponies are to the level of copying/inspiration but i would prefer if you didnt totally copy my horses. as for inspiration for colors or whatever be my guest but know i am incredibly colorblind and anything you did yourself would probably look better
