@@ -8,6 +8,8 @@ names ; Narrator / Martin
 pronouns ; he / script / fog 
 
 age ; 18 years young and thriving (unemployed)
+
+hello. i am never on ponytown like ever. i make horses and then just never actually log into the game. the only times i log on is when i want to bother my wife. i lauve my wife .. : )
 ***
 ![25c912d7cc7e66cdac03091c6eb86bd6](https://github.com/user-attachments/assets/75534e59-dda5-451b-b8d4-c5ee3e059ea2)
 
