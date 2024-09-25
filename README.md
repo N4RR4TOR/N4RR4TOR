@@ -3,7 +3,7 @@ sorry for the lackluster github + neocities - they are under construction (and w
 ***
 ## Introduction
 
-names ; Narrator / Martin
+names ; Narrator / Ford
 
 pronouns ; he / script / fog 
 
