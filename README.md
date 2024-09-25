@@ -16,11 +16,11 @@ hello. i am never on ponytown like ever. i make horses and then just never actua
 onto the arguably skippable sections ! ( hah ! )
 ***
 ## Int / Dni
-as long as you are a normal person above the age of 16 i am sure we will get along fine ! ( i dont care for internet discourse much )
+as long as you are a somewhat normal person above the age of 16 i am sure we will get along fine ! ( i do not care about internet discourse . be a sensible person . )
 
-( though for the sake of my own sanity i may block you if you pda as jonathan sims or stanley ! )
+( i may block you for my own secret psychotic reasons . it is not personal i am just insane . sorry ! )
 
-note ; i am mentally unwell. for those who are privvy to the medical information of internet strangers ; fret not ! i am being medicated soon
+note ; i am mentally unwell. for those who are privvy to the medical information of internet strangers ; fret not ! i am on medication 
 ***
 ## Extra
 if you see me from across the bar and enjoy my vibes feel free to reach me on twitter (@cptrawdog) or discord (@0ldmanyaoi) 
