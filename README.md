@@ -7,7 +7,7 @@ names ; Narrator / Ford
 
 pronouns ; he / script / fog ( and more ! )
 
-age ; 18 years young and thriving (unemployed) (just got accepted into college i start in january wow) 
+age ; 19 years young and thriving (unemployed) (i start college in january wow) 
 
 hello. i am never on ponytown like ever. i make horses and then just never actually log into the game. the only times i log on is when i want to bother my poor poor wife .
 ***
