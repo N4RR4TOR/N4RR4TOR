@@ -3,13 +3,13 @@ sorry for the lackluster github + neocities - they are under construction (and w
 ***
 ## Introduction
 
-names ; Narrator / Ford
+names ; Narrator / Mark
 
 pronouns ; he / script / fog ( and more ! )
 
-age ; 19 years young and thriving (unemployed) (i start college in january wow) 
+age ; 19 years young and thriving (unemployed) (college student)
 
-hello. i am never on ponytown like ever. i make horses and then just never actually log into the game. the only times i log on is when i want to bother my poor poor wife .
+hello. i am never on ponytown like ever. i make horses and then just never actually log into the game.
 ***
 ![25c912d7cc7e66cdac03091c6eb86bd6](https://github.com/user-attachments/assets/75534e59-dda5-451b-b8d4-c5ee3e059ea2)
 
@@ -20,7 +20,7 @@ as long as you are a somewhat normal person above the age of 16 i am sure we wil
 
 ( i may block you for my own secret psychotic reasons . it is not personal i am just insane . sorry ! )
 
-note ; i am mentally unwell. for those who are privvy to the medical information of internet strangers ; fret not ! i am on medication 
+note ; super hidden (not at all) but we are a system!! 
 ***
 ## Extra
 if you see me from across the bar and enjoy my vibes feel free to reach me on twitter (@cptrawdog) or discord (@0ldmanyaoi) 
